@@ -1,1 +1,0 @@
-# ketevann-chankvetadze
